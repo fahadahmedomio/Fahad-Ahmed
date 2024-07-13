@@ -12,7 +12,7 @@
 - ⚡ Fun fact **I can edit video and audios**
 
 <h3 align="left">Connect with me:</h3>
-
+<img align="right" alt="Studing" width="400" src="https://www.icegif.com/wp-content/uploads/2023/11/icegif-41.gif">
 
 
 <p align="left">
